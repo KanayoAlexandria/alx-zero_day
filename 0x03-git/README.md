@@ -1,1 +1,1 @@
-so cool
+ALX school is very interesting
